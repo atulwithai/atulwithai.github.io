@@ -1,2 +1,2 @@
-# ankitwithai.github.io
-Designer × AI enthusiast. Building, learning and sharing in public.
+# AV Dreamworks (atulwithai.github.io)
+Creative Digital & AI Studio. Building, learning, and sharing in public.
